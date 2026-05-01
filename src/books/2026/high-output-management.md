@@ -285,3 +285,111 @@ If the absolute amount of a raise in salary is important, that person is probabl
 As managers, our concern is to get a high level of performance from our subordinates. So we want to dispense, allocate, and use money as a way to deliver task relevant feedback
 
 we managers must be responsible and provide our subordinates with honest performance ratings and honest merit-based compensation.
+
+What industry do you dominate? - Who is your customer (this should be a real live human being, not a corporate entity), and what pain do they have that are you solving for them? - What is unique about your solution that causes the customer to choose you over the competition? - What asset (human or physical) do you control that makes it difficult for any competitor to copy your solution? In other words, what is your moat?
+
+Team member: 1. Goals: a. What successes did you have? What are you proud of? b. What setbacks did you encounter? What are you not proud of? c. What can you do to make sure the same setbacks won’t occur again? 2. Updates: a. KPIs b. What new information did you gather about the customer? The product? 3. Issues: a. What tools do you need to accomplish your Goals that you do not currently have? 4. Feedback: a. What did you like about the manager’s or the company’s actions since the previous meeting? b. What do you wish would change?
+
+But radical transparency first requires explicit buy-in from every team member, and training in how to do it effectively. Conscious Leadership Group runs excellent 1-day trainings in radical transparency. The investment of time may seem large, but usually pays itself back within a few weeks (ie- saving a half-day per week).
+
+In fundraising, you are selling the company’s equity and debt as a high-quality investment, and the investor is compensating you with capital. In recruiting, you are selling the company as a high-quality employment opportunity, and the new employee is giving you their time and effort as payment. In sales, you are selling your product as a high-quality solution, and the customer is giving you money as payment.
+
+It was as though most managers in the world were primarily interested either in results or in people. The managers who were interested in results often seemed to be labeled “autocratic,” while the managers interested in people were often labeled “democratic.”
+
+“Effective managers,” he thought, “manage themselves and the people they work with so that both the organization and the people profit from their presence.”
+
+“We‟re here to get results,” the manager continued. “The purpose of this organization is efficiency.
+
+People Who Feel Good About Themselves Produce Good Results
+
+helping people to feel good about themselves is a key to getting more done.
+
+Quality is simply giving people the product or service they really want and need.
+
+Do not ask me to repeat myself
+
+The One Minute Manager always makes it clear what our responsibilities are and what we are being held accountable for.
+
+The old man believes in the 80-20 goal-setting rule. That is, 80% of your really important results will come from 20% of your goals.
+
+A problem only exists if there is a difference between what is actually happening and what you desire to be happening.
+
+Help People Reach Their Full Potential Catch Them Doing Something Right
+
+The One Minute Praising works well when you: 1. Tell people up front that you are going to let them know how they are doing. 2. Praise people immediately. 3. Tell people what they did right—be specific. 4. Tell people how good you feel about what they did right, and how it helps the organization and the other people who work there. 5. Stop for a moment of silence to let them “feel” how good you feel. 6. Encourage them to do more of the same. 7. Shake hands or touch people in a way that makes it clear that you support their success in the organization.
+
+he doesn‟t attack me as a person—only my behavior—it‟s easier for me not to become defensive
+
+you don‟t usually make the same mistake twice.
+
+The One Minute Reprimand works well when you: 1. Tell people beforehand that you are going to let them know how they are doing and in no uncertain terms. the first half of the reprimand: 2. Reprimand people immediately. 3. Tell people what they did wrong—be specific. 4. Tell people how you feel about what they did wrong— and in no uncertain terms. 5. Stop for a few seconds of uncomfortable silence to let them feel how you feel. the second half of the reprimand: 6. Shake hands, or touch them in a way that lets them know you are honestly on their side. 7. Remind them how much you value them. 8. Reaffirm that you think well of them but not of their performance in this situation. 9. Realize that when the reprimand is over, it‟s over.
+
+The Best Minute I Spend Is The One I Invest In People
+
+Everyone Is A Potential Winner Some People Are Disguised As Losers, Don’t Let Their Appearances Fool You.
+
+Take A Minute: Look At Your Goals Look At Your Performance See If Your Behavior Matches Your Goals
+
+They are aware, they think for themselves and they certainly don‟t want to be manipulated by another person. Remember that and respect that. It is a key to good management.
+
+These examples illustrate that the most important thing in training somebody to become a winner is to catch them doing something right—in the beginning approximately right and gradually moving them towards the desired behavior. With a winner you don‟t have to catch them doing things right very often, because good performers 66 catch themselves doing things right and are able to be self-reinforcing.
+
+telling people what they did wrong; telling people how you feel about it; and reminding people that they are valuable and 75 worthwhile
+
+We Are Not Just Our Behavior We Are The Person Managing Our Behavior
+
+One Minute Management being a powerful way to get people to do what you want them to do,” the manager confirmed. “However manipulation is getting people to do something they are either not aware of or don‟t agree to. That is why it is so important to let each person know up front what you are doing and why.
+
+Goals Begin Behaviors Consequences Maintain Behaviors
+
+I just help people work better and in the process they benefit our organization.
+
+He set One Minute Goals. He gave One Minute Praisings. He gave One Minute Reprimands. He asked brief, important questions; spoke the simple truth; laughed, worked, and enjoyed. And, perhaps most important of all, he encouraged the people he worked with to do the same.
+
+Leadership
+
+Know your audience
+Read the room
+Seek feedback
+Know when to think fast or slow
+Emotional intelligence
+Time management
+Build relationships
+Leverage social media
+Self reflection and continuous improvement
+Make everyone feel valued
+Transparent communication that build trust and safety
+Set goals
+Who do I serve? What problem are you solving? What your competitive advantage?
+Trust drivers: Competency, empathy, and authenticity
+Convey your warmth and concern
+Listen and empathize
+Assume positive intent
+
+leadership skills, strategic thinking, and networking
+
+Follow the 20-20-20 rule
+
+I become power
+
+1. Never show all your cards
+2. Control your emotions or be controlled
+3. Make people depend on you
+4. Master the art of disguise
+5. Strike first or be crushed
+6. Protect your reputation like your life
+7. Keep your plans invisible
+8. Use absence to gain respect
+9. Turn enemies into stepping stones
+10. Reward loyalty but never rely on
+11. Keep people competing for your approval
+12. Silence is your greatest weapon
+13. Crush threats before they grow
+14. Never fight battles that don’t serve you
+15. Always appear strong even when you are not
+16. Build power in the shadow
+17. Use fear to keep in line
+18. Control information
+19. Cut off weakness without mercy
+20. Always leave them guessing
+21. Leave a legacy of power
