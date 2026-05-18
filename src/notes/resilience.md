@@ -4,7 +4,7 @@ a person’s level of resilience will determine who succeeds and who fails.
 
 Resilient people, they posit, possess three characteristics: a staunch acceptance of reality; a deep belief, often buttressed by strongly held values, that life is meaningful; and an uncanny ability to improvise.
 
-The fact is, when we truly stare down reality, we prepare ourselves to act in ways that allow us to endure and survive extraordinary hardship. We train ourselveshow to survive before the fact.
+The fact is, when we truly stare down reality, we prepare ourselves to act in ways that allow us to endure and survive extraordinary hardship. We train ourselves how to survive before the fact.
 
 The ability to see reality is closely linked to the second building block of resilience, the propensity to make meaning of terrible times.
 
