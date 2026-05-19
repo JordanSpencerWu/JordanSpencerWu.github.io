@@ -140,7 +140,7 @@ Our employees became our number-one recruiting technique
 
 It takes A Players to know A Players
 
-By turning employees into talent spotters, everyone starts viewing the business through a who lens, not just awhat one.
+By turning employees into talent spotters, everyone starts viewing the business through a who lens, not just a what one.
 
 Hold employees accountable for sourcing people through their networks, and everyone will benefit when talent flows into the business.
 
