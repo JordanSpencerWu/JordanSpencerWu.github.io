@@ -50,7 +50,7 @@ what it takes to build and maintain our energy: sleep well, eat right, exercise,
 
 The important thing is to be intentional about where we put our energy so that we apply it to what matters most to us.
 
-Notice your energy . Where do you spend it?
+Notice your energy. Where do you spend it?
 
 Know what matters to you . Knowing what brings value to your life—joy and productivity, for me—is essential to making smart decisions about where to invest your energy.
 
