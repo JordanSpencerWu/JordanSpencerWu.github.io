@@ -39,3 +39,25 @@ The startup founders who end up richest are not the ones driven by money. The on
 Which means people with a desire to improve the world have a natural advantage.
 
 that being mean makes you fail.
+
+The first step is to decide what to work on. The work you choose needs to have three qualities: it has to be something you have a natural aptitude for, that you have a deep interest in, and that offers scope to do great work.
+
+Merely having energy and imagination is quite rare. But to solve hard problems you need three more qualities: resilience, good judgement, and a focus on some kind of goal.
+
+Make good new things.
+
+is founders who understand some group of users and can make what they want. This is so important that it's YC's motto: "Make something people want."
+
+The first thing the partners will try to figure out, usually, is whether what you're making will ever be something a lot of people want. It doesn't have to be something a lot of people want now. The product and the market will both evolve, and will influence each other's evolution. But in the end there has to be something with a huge market. That's what the partners will be trying to figure out: is there a path to a huge market?
+
+So this is one thing the YC partners will almost certainly dig into during your interview. Who are your first users going to be, and how do you know they want this? If I had to decide whether to fund startups based on a single question, it would be "How do you know people want this?"
+
+The way to get startup ideas is not to try to think of startup ideas. It's to look for problems, preferably problems you have yourself.
+
+The very best startup ideas tend to have three things in common: they're something the founders themselves want, that they themselves can build, and that few others realize are worth doing.
+
+The three most powerful motives are curiosity, delight, and the desire to do something impressive. Sometimes they converge, and that combination is the most powerful of all.
+
+be curious. Try lots of things, meet lots of people, read lots of books, ask lots of questions.
+
+if you stick to what you find genuinely interesting, you'll be proof against all of them. If you're interested, you're not astray.
