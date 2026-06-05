@@ -166,3 +166,150 @@ Recommending a change in action is much easier than recommending a change in att
 You can’t ask people to change their personalities, but you can ask them to change their behaviors.
 
 Delegating, thinking strategically, communicating.An organization that supports its new managers by helping them to develop these skills will have surprising advantages over the competition.
+
+ideal workers: people totally dedicated to their jobs and always on call.
+
+In such places, any suggestion of meaningful outside interests and commitments can signal a lack of fitness for the job.
+
+accepting and conforming to the demands of a high-pressure workplace; passing as ideal workers by quietly finding ways around the norm; or revealing their other commitments and their unwillingness to abandon them.
+
+"accepters” prioritize their work identities and sacrifice or significantly suppress other meaningful aspects of who they are.
+
+People in leadership positions can avoid the fragility that results from blind acceptance of ideal-worker norms by deliberately cultivating their own non work identities: a civic self, an athletic self, a family-oriented self.
+
+employees whose lives are better balanced create value for the organization.
+
+Most organizations leave it to their employees to set boundaries between their work and their non work lives—often with the best
+intentions.
+
+A handful of gifted “naturals” simply know how to capture an audience, sway the undecided, and convert the opposition. What’s impressive is not just the easy way they use charisma and eloquence to convince others to do as they ask. It’s also how eager those others are to do what’s requested of them, as if the persuasion itself were a favor they couldn’t wait to repay.
+
+Persuasion, in other words, is governed by basic principles that can be taught, learned, and applied.
+
+People like those who like them.
+
+Uncover real similarities and offer genuine praise.
+
+If leadership, at its most basic, consists of getting things done through others, then persuasion is one of the leader’s essential tools. The first principle is that people
+are more likely to follow someone who is similar to them than someone who is not. Second, people are more willing to cooperate with those who are not only like them but who like them, as well. So it’s worth the time to uncover real similarities and offer genuine praise. Third, experiments confirm the intuitive truth that people tend to treat you the way you treat them. Fourth, individuals are more likely to keep promises they make voluntarily and explicitly. The message for managers here is to get commitments in writing. Fifth, studies show that people really do defer to experts. Finally, people want more of a commodity when it’s scarce; it follows, then, that exclusive information is more persuasive than widely available data.
+
+If you want to influence people, win friends.
+
+The important thing is to establish the bond early because it creates a presumption of goodwill and trustworthiness in every subsequent encounter
+
+Praise, the other reliable generator of affection, both charms and disarms.
+
+positive remarks about another person’s traits, attitude, or performance reliably generates liking in return, as well as willing compliance with the wishes of the person offering the praise.
+
+People repay in kind.
+
+Give what you want to receive.
+
+People follow the lead of similar others.
+
+Use peer power whenever it’s available.
+
+Social creatures that they are, human beings rely heavily on the people around them for cues on how to think, feel, and act.
+
+People align with their clear commitments.
+
+Make their commitments active, public, and voluntary.
+
+Liking is a powerful force, but the work of persuasion involves more than simply making people feel warmly toward you, your idea, or your product. People need not only to like you but to feel committed to what you want them to do. Good turns are one reliable way to make people feel obligated to you. Another is to win a public commitment from them.
+
+Get it in writing.
+
+as a rule, people live up to what they have written down.
+
+written statements become even more powerful when they’re made public.
+
+People defer to experts.
+
+Expose your expertise; don’t assume it’s self-evident.
+
+People want more of what they can have less of.
+
+Highlight unique benefits and exclusive information.
+
+items and opportunities are seen to be more valuable as they become less available.
+
+Nothing I could say would more effectively make the point that the deceptive or coercive use of the principles of social influence is ethically wrong and pragmatically wrongheaded.
+
+Legitimate expertise, genuine obligations, authentic similarities, real social proof, exclusive news, and freely made commitments can produce choices that are likely to benefit both parties.
+
+most effective leaders are alike in one crucial way: They all have a high degree of what has come to be known as emotional intelligence.
+
+I grouped capabilities into three categories: purely technical skills like accounting and business planning; cognitive abilities like analytical reasoning; and competencies demonstrating emotional intelligence, such as the ability to work with others and effectiveness in leading change.
+
+It's emotional intelligence IE: a group of five skills that enable the best leaders to maximize their own and their follower's performance.
+
+Self-awareness—knowing one’s strengths, weaknesses, drives, values, and impact on others
+
+Self-regulation—controlling or redirecting disruptive impulses and moods
+
+Motivation—relishing achievement for its own sake
+
+Empathy—understanding other people’s emotional makeup
+
+Social skill—building rapport with others to move them in desired directions
+
+the higher the rank of a person considered to be a star performer, the more emotional intelligence capabilities showed up as the reason for his or her effectiveness.
+
+People with strong self-awareness are honest—with themselves and with others.
+
+People who have a high degree of self-awareness recognize how their feelings affect them, other people, and their job performance
+
+One of the hallmarks of self-awareness is a self-deprecating sense of humor.
+
+Self-aware people know—and are comfortable talking about—their limitations and strengths, and they often demonstrate a thirst for constructive criticism.
+
+Socially skilled people tend to have a wide circle of acquaintances, and they have a knack for finding common ground with people of all kinds—a knack for building rapport.
+
+the leader’s task is to get work done through other people, and social skill makes that possible.
+
+Social skill allows leaders to put their emotional intelligence to work.
+
+that career advances require all of us to move way beyond our comfort zones.
+
+When we are unsure of ourselves or our ability to perform well or measure up in a new setting, we often retreat to familiar behaviors and styles.
+
+the moments that most challenge our sense of self are the ones that can teach us the most about leading effectively.
+
+By viewing ourselves as works in progress and evolving our professional identities through trial and error, we can develop a personal style that feels right to us and suits our organizations’ changing needs
+
+The reality is that people learn—and change—who they are through experience.
+
+the first 90 days are critical in a new leadership role. First impressions form quickly, and they matter.
+
+Many managers know deep down that their good ideas and strong potential will go unnoticed if they don’t do a better job of selling themselves.
+
+Your leadership identity can and should change each time you move on to bigger and better things.
+
+The only way we grow as leaders is by stretching the limits of who we are—doing new things that make us uncomfortable but that teach us through direct experience who we want to become.
+
+Managing your boss requires that you gain an understanding of the boss and his or her context, as well as your own situation
+
+you need to appreciate your boss’s goals and pressures, his or her strengths and weaknesses.
+
+Checklist for Managing Your Boss
+
+Make sure you understand your boss and his or her context, including:
+
+- Goals and objectives
+- Pressures
+- Strengths, weaknesses, blind spots
+- Preferred work style
+
+Assess yourself and your needs, including:
+
+- Strengths and weaknesses
+- Personal style
+- Predisposition toward dependence on authority figures
+
+Develop and maintain a relationship that:
+
+- Fits both your needs and styles
+- Is characterized by mutual expectations
+- Keeps your boss informed
+- Is based on dependability and honesty
+- Selectively uses your boss's time and resources
