@@ -313,3 +313,37 @@ Develop and maintain a relationship that:
 - Keeps your boss informed
 - Is based on dependability and honesty
 - Selectively uses your boss's time and resources
+
+networking—creating a fabric of personal contacts who will provide support, feedback, insight, resources, and information—is simultaneously one of the most self-evident and one of the most dreaded developmental challenges that aspiring leaders must address.
+
+interdependent forms of networking—operational, personal, and strategic
+
+The first helped them manage current internal responsibilities, the second boosted their personal development, and the third opened their eyes to new business directions and the stakeholders they would need to enlist.
+
+Operational - people you need to accomplish your assigned, routine tasks.
+
+Personal - kindred spirits outside your organization who can help you with personal advancement.
+
+Strategic - people outside your control who will enable you to reach key organizational objectives.
+
+to re ally succeed, you must master strategic networking—by interacting regularly with people who can open your eyes to new business opportunities and help you capitalize on them.
+
+All managers need to build good working relationships with the people who can help them do their jobs.
+
+Accept that networking is one of the most important requirements of a leadership role.
+
+Master the art of delegation, to liberate time you can then spend on cultivating networks.
+
+When managers begin the delicate transition from functional manager to business leader, they must start to concern themselves with broad strategic issues. Lateral and vertical relationships with other functional and business unit managers—all people outside their immediate control—become a lifeline for figuring out how their own contributions fit into the big picture. Thus strategic networking plugs the aspiring leader into a set of relationships and information sources that collectively embody the power to achieve personal and organizational goals.
+
+What differentiates a leader from a manager, research tells us, is the ability to figure out where to go and to enlist the people and groups necessary to get there. Recruiting stakeholders, lining up allies and sympathizers, diagnosing the political landscape, and brokering conversations among unconnected parties are all part of a leader’s job.
+
+The key to a good strategic network is leverage: the ability to marshal information, support, and resources from one sector of a network to achieve results in another.
+
+Strategic networkers use indirect influence, convincing one person in the network to get someone else, who is not in the network, to take a needed action.
+
+The best networkers do exactly the opposite: They take every opportunity to give to, and receive from, the network, whether they need help or not.
+
+A network lives and thrives only when it is used. A good way to begin is to make a simple request or take the initiative to connect two people who would benefit from meeting each other.
+
+Leaders accept that networking is one of the most important requirements of their new leadership roles and continue to allocate enough time and effort to see it pay oﬀ.
