@@ -347,3 +347,110 @@ The best networkers do exactly the opposite: They take every opportunity to give
 A network lives and thrives only when it is used. A good way to begin is to make a simple request or take the initiative to connect two people who would benefit from meeting each other.
 
 Leaders accept that networking is one of the most important requirements of their new leadership roles and continue to allocate enough time and effort to see it pay oﬀ.
+
+Boss-imposed time—used to accomplish those activities that the boss requires and that the manager cannot disregard without direct and swift penalty.
+
+System-imposed time—used to accommodate requests from peers for active support. Neglecting these requests will also result in penalties, though not always as direct or swift.
+
+Self-imposed time—used to do those things that the manager originates or agrees to do. A certain portion of this kind of time, however, will be taken by subordinates and is called subordinate-imposed time. The remaining portion will be the manager’s own and is called discretionary time. Self-imposed time is not subject to penalty since neither the boss nor the system can discipline the manager for not doing what they didn’t know he had intended to do in the first place.
+
+You're racing down the hall. An employee stops you and says, "We've got a problem." You assume you should get involved but can't make an on-the-spot decision. You say, "Let me think about it."
+
+You've just allowed a "monkey" to leap from your subordinate's back to yours. You're now working for your subordinate. Take on enough monkeys, and you won't have time to handle your real job: fulfilling your own boss's mandates and helping peers generate business results.
+
+How to avoid accumulating monkeys? Develop your subordinates' initiative. For example, when an employee tries to hand you a problem, clarify whether he should: recommend and implement a solution, take action then brief you immediately, or act and report the outcome at a regular update.
+
+When you encourage employees to handle their own monkeys, they acquire new skills and you liberate time to do your own job.
+
+Make appointments to deal with monkeys
+
+Specify level of initiative
+
+1. Wait until told what to do.
+2. Ask what to do.
+3. Recommend an action, then with your approval, implement it.
+4. Take independent action but advise you at once.
+5. Take independent action and update you through routine procedure.
+
+Agree on status update. After deciding how to proceed, agree on a time and place when the employee will give you a progress report.
+
+The first order of business is for the manager to enlarge his or her discretionary time by eliminating subordinate-imposed time. The second is for the manager to use a portion of this newfound discretionary time to see to it that each subordinate actually has the initiative and applies it. The third is for the manager to use another portion of the increased discretionary time to get and keep control of the timing and content of both boss-imposed and system-imposed time. All these steps will increase the manager’s leverage and enable the value of each hour spent in managing management time to multiply without theoretical limit.
+
+many rising stars trip when they shift from leading a function to leading an enterprise and for the first time taking responsibility for a P&L and oversight of executives across corporate functions.
+
+What I found is that to make the transition successfully, They must learn to move from specialist to generalist, analyst to integrator, tactician to strategist, bricklayer to architect, problem solver to agenda setter, warrior to diplomat, and supporting cast member to lead role.
+
+the reality is that the move to enterprise leadership always requires executives who’ve been specialists to quickly turn into generalists who know enough about all the functions to run their businesses.
+
+Enterprise leaders must be able to (1) make decisions that are good for the business as a whole and (2) evaluate the talent on their teams. To do both they need to recognize that business functions are distinct managerial subcultures, each with its own mental models and language.
+
+Effective leaders understand the different ways that professionals in finance, marketing, operations, HR, and R&D approach business problems, and the various tools (discounted cash flow, customer segmentation, process flow, succession planning, stage gates, and the like) that each discipline applies. Leaders must be able to speak the language of all the functions and translate for them when necessary. And critically, leaders must know the right questions to ask and the right metrics for evaluating and recruiting people to manage areas in which they themselves are not experts.
+
+The primary responsibility of functional leaders is to recruit, develop, and manage people who focus in analytical depth on specific business activities.
+
+An enterprise leader’s job is to manage and integrate the collective knowledge of those functional teams to solve important organizational problems.
+
+balance the needs of the supply side of the business (operations) with those of its demand side (sales and marketing), to know when to focus on the quarterly
+business results (finance) and when to invest in the future (R&D), to decide how much attention to devote to execution and how much to innovation, and to make many other such calls.
+
+adopt a strategic mind-set, by cultivating three skills: level shifting, pattern recognition, and mental simulation.
+
+Level shifting is the ability to move fluidly among levels of analysis—to know when to focus on the details, when to focus on the big picture, and how the two relate.
+
+Pattern recognition is the ability to discern important causal relationships and other significant patterns in a complex business and its environment—that is, to separate the signal from the noise.
+
+Mental simulation is the ability to anticipate how outside parties (competitors, regulators, the media, key members of the public) will respond to what you do, to predict their actions and reactions in order to define the best course to take.
+
+As leaders move up to the enterprise level, they become responsible for designing and altering the architecture of their organization—its strategy, structure, processes, and skill bases.
+
+To be effective organizational architects, they need to think in terms of systems.
+
+Enterprise leaders need to know the principles of organizational change and change management, including the mechanics of organizational design, business process improvement, and transition management.
+
+Many managers are promoted to senior levels on the strength of their ability to fix problems. When they become enterprise leaders, however, they must focus less on solving problems and more on defining which problems the organization should be tackling.
+
+Core Performance Metrics
+
+- Sales of key products versus competitors’ key products
+- Market share growth in key products
+- Execution against business plan commitments
+
+People Management Metrics
+
+- Vacancy rate by region or district
+- Rate of internal promotions and strength of internal succession pipeline
+- Number of regrettable employees losses and the reasons for them
+- Success in recruiting and selection
+
+Customer Metrics
+
+- Customer satisfaction and retention rates
+- Evidence of understanding purchasing patterns
+- Average amount of sales person interaction with customers
+
+Warning Signs
+
+- Regrettable losses of sales personnel
+- Flattening or declining sales
+- Lack of internal development for future sales leaders
+- Internal promotions with poor results
+- Inability to communicate product advantages and disadvantages
+- Poor assessment of the organization’s strengths and weaknesses
+- Lack of time in the field or interactions with customers
+- Lack of partnering skills with marketing and other key functions
+
+he skills he had honed as a functional leader—mastery of sales and marketing tools and techniques, organizational know-how, and even the ability to mobilize talent and promote teamwork—were not enough. To work out which problems his team should focus on—that is, to set the agenda—he had to learn to navigate a far more uncertain and ambiguous environment than he was used to. He also needed to learn to communicate priorities in ways his organization could respond to.
+
+What do effective corporate diplomats do? They use the tools of diplomacy—negotiation, persuasion, conflict management, and alliance building—to shape the external business environment to support their strategic objectives.
+
+enterprise leaders need to embrace a new mind-set—to look for ways that interests can or do align, understand how decisions are made in different kinds of organizations, and develop effective strategies for influencing others.
+
+They must also understand how to recruit and manage employees of a kind that they have probably never supervised before: professionals in key supporting functions such as government relations and corporate communications. And they must recognize that these employees’ initiatives have longer horizons than the ongoing business, with its focus on quarterly or even annual results, does. Initiatives like a campaign to shape the development of government regulation can take years to unfold.
+
+becoming an enterprise leader means moving to center stage under the bright lights.
+
+this shift is about having a much greater impact as a role model. Managers at all levels are role models to some degree. But at the enterprise level, their influence is magnified, as everyone looks to them for vision, inspiration, and cues about the “right” behaviors and attitudes.
+
+to lead large groups of people—how to define a compelling vision and share it in an inspiring way.
+
+The skills that got you where you are may not be the requisite skills to get you to where you need to go. This doesn’t discount the accomplishments of your past, but they will not be everything you need for the next leg of the journey.
