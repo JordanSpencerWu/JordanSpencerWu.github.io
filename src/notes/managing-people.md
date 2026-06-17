@@ -111,3 +111,73 @@ You have the responsibility to empower the rookie who works for you and do what 
 Your staff members don’t necessarily have to like you, but they do need to trust you. Ensure that the new manager owns the message she’s delivering.
 
 Senior managers can help rookies by explaining to them that strategic thinking is a necessary skill for career advancement: For first-time managers, 10% of the work might be strategic and 90% tactical. As executives climb the corporate ladder, however, those percentages will flip- flop. To be successful at the next level, managers must demonstrate that they can think and act strategically.
+
+What sets the great boss apart from the average boss? They discover what is unique about each person and then capitalize on it.
+
+Great managers know and value the unique abilities and even the eccentricities of their employees, and they learn how best to integrate them into a coordinated plan of attack.
+
+Great leaders discover what is universal and capitalize on it. Their job is to rally people toward a better future. Leaders can succeed in this only when they can cut through differences of race, sex, age, nationality, and personality and, using stories and celebrating heroes, tap into those very few needs we all share.
+
+The job of a manager is to turn one person’s particular talent into performance. Managers will succeed only when they can identify and deploy the differences among people, challenging each employee to excel in his or her own way.
+
+Instead of trying to change your employees, identify their unique abilities (and even their eccentricities)—then help them use those qualities to excel in their own way.
+
+Continuously tweak roles to capitalize on individual strengths.
+
+Pull the triggers that activate employees’ strengths.
+
+Tailor coaching to unique learning styles. Give “analyzers” the information they need before starting a task. Start “doers” off with simple tasks, then gradually raise the bar. Let “watchers” ride shotgun with your most experienced performers.
+
+there are three things you must know about someone to manage her well: her strengths, the triggers that activate those strengths, and how she learns.
+
+The great manager spends a good deal of time outside the office walking around, watching each person’s reactions to events, listening, and taking mental notes about what each individual is drawn to and what each person struggles with.
+
+To identify a person’s strengths, first ask, “What was the best day at work you’ve had in the past three months?”
+
+To identify a person’s weaknesses, just invert the question: “What was the worst day you’ve had at work in the past three months?”
+
+A manager’s most precious resource is time, and great managers know that the most effective way to invest their time is to identify exactly how each employee is different and then to figure out how best to incorporate those enduring idiosyncrasies into the overall plan.
+
+To excel at managing others, you must bring that insight to your actions and interactions. Always remember that great managing is about release, not transformation. It’s about constantly tweaking your environment so that the unique contribution, the unique needs, and the unique style of each employee can be given free rein. Your success as a manager will depend almost entirely on your ability to do this.
+
+economists assume that people are maximizers of utility, driven mainly by rational calculations of their own self-interest.
+
+embedded in the tools managers traditionally use to control and motivate employees’ behavior—from incentive systems to organizational structures.
+
+People do care about outcomes, they also care about the processes that produce those outcomes.
+
+Outcomes matter, but no more than the fairness of the processes that produce them.
+
+Fair process turns out to be a powerful management tool for companies struggling to make the transition from a production-based to a knowledge-based economy, in which value creation depends increasingly on ideas and innovation.
+
+Fair process profoundly influences attitudes and behaviors critical to high performance. It builds trust and unlocks ideas.
+
+fair process—a decision-making approach that addresses our basic human need to be valued and respected.
+
+When people feel a decision affecting them was made fairly, they trust and cooperate with managers. They share ideas and willingly go beyond the call of duty. Corporate performance soars.
+
+In knowledge-based organizations—whose lifeblood consists of employees’ trust, commitment, and ideas—fair process is essential. It enables companies to channel people’s energy and creativity toward organizational goals.
+
+most people will accept outcomes not wholly in their favor—if they believe the process for arriving at those outcomes was fair.
+
+Fair process consists of three principles:
+
+Engagement means involving individuals in the decisions that affect them by asking for their input and allowing them to refute the merits of one another’s ideas and assumptions. Engagement communicates management’s respect for individuals and their ideas. Encouraging refutation sharpens everyone’s thinking and builds collective wisdom. Engagement results in better decisions by management and greater commitment from all involved in executing those decisions.
+
+Explanation means that everyone involved and affected should understand why final decisions are made as they are. An explanation of the thinking that underlies decisions makes people confident that managers have considered their opinions and have made those decisions impartially in the overall interests of the company. An explanation allows employees to trust managers’ intentions even if their own ideas have been rejected. It also serves as a powerful feedback loop that enhances learning.
+
+Expectation clarity requires that once a decision is made, managers state clearly the new rules of the game. Although the expectations may be demanding, employees should know up front by what standards they will be judged and the penalties for failure. What are the new targets and milestones? Who is responsible for what? To achieve fair process, it matters less what the new rules and policies are and more that they are clearly understood. When people clearly understand what is expected of them, political jockeying and favoritism are minimized, and they can focus on the job at hand.
+
+Managers who believed the company’s processes were fair displayed a high level of trust and commitment, which, in turn, engendered active cooperation. Conversely, when managers felt fair process was absent, they hoarded ideas and dragged their feet.
+
+Individuals are most likely to trust and cooperate freely with systems—whether they themselves win or lose by those systems—when fair process is observed.
+
+Fair process responds to a basic human need. All of us, whatever our role in a company, want to be valued as human beings and not as “personnel” or “human assets.”
+
+Notice that fair process is not decision by consensus. Fair process does not set out to achieve harmony or to win people’s support through compromises that accommodate every individual’s opinions, needs, or interests. While fair process gives every idea a chance, the merit of the ideas—and not consensus—is what drives the decision making.
+
+knowledge is a resource locked in the human mind. Creating and sharing knowledge are intangible activities that can neither be supervised nor forced out of people. They happen only when people cooperate voluntarily.
+
+innovation is the key challenge of the knowledge-based economy, and innovation requires the exchange of ideas, which in turn depends on trust.
+
+very company can tap into the voluntary cooperation of its people by building trust through fair processes.
