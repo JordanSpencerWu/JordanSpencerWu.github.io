@@ -237,3 +237,31 @@ The first step to reducing unconscious bias is to collect data to reveal its pre
 Managers who aspire to be ethical must challenge the assumption that they’re always unbiased and acknowledge that vigilance, even more than good intention, is a defining characteristic of an ethical manager. They must actively collect data, shape their environments, and broaden their decision making.
 
 Managers should seek every opportunity to implement affirmative action policies—not because of past wrongs done to one group or another but because of the everyday wrongs that we can now document are inherent in the ordinary, everyday behavior of good, well-intentioned people. Ironically, only those who understand their own potential for unethical behavior can become the ethical decision makers that they aspire to be.
+
+Teamwork represents a set of values that encourage listening and responding constructively to views expressed by others, giving others the benefit of the doubt, providing support, and recognizing the interests and achievements of others.
+
+A working group’s performance is a function of what its members do as individuals.
+
+A team’s performance includes both individual results and what we call “collective work products.” A collective work product is what two or more members must work on together, such as interviews, surveys, or experiments. Whatever it is, a collective work product reflects the joint, real contribution of team members.
+
+A team is a small number of people with complementary skills who are committed to a common purpose, set of performance goals, and approach for which they hold themselves mutually accountable.
+
+The essence of a team is common commitment.
+
+Teams develop direction, momentum, and commitment by working to shape a meaningful purpose.
+
+The best teams invest a tremendous amount of time and effort exploring, shaping, and agreeing on a purpose that belongs to them both collectively and individually.
+
+Problem-solving and decision-making skills Teams must be able to identify the problems and opportunities they face, evaluate the options they have for moving forward, and then make necessary trade-offs and decisions about how to proceed.
+
+When people work together toward a common objective, trust and commitment follow.
+
+All team members need to believe the team has urgent and worthwhile purposes, and they want to know what the expectations are. Indeed, the more urgent and meaningful the rationale, the more likely it is that the team will live up to its performance potential
+
+No team succeeds without all the skills needed to meet its purpose and performance goals. The wise manager will choose people for their existing skills and their potential to improve existing skills and learn new ones.
+
+When potential teams first gather, everyone monitors the signals given by others to confirm, suspend, or dispel assumptions and concerns. They pay particular attention to those in authority: the team leader and any executives who set up, oversee, or otherwise influence the team. And, as always, what such leaders do is more important than what they say.
+
+Positive reinforcement works as well in a team context as elsewhere. Giving out “gold stars” helps shape new behaviors critical to team performance.
+
+top management must recognize a team’s unique potential to deliver results, deploy teams strategically when they are the best tool for the job, and foster the basic discipline of teams that will make them effective.
