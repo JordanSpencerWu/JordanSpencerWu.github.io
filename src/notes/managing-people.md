@@ -181,3 +181,59 @@ knowledge is a resource locked in the human mind. Creating and sharing knowledge
 innovation is the key challenge of the knowledge-based economy, and innovation requires the exchange of ideas, which in turn depends on trust.
 
 very company can tap into the voluntary cooperation of its people by building trust through fair processes.
+
+success in the marketplace increasingly depends on learning, yet most people don’t know how to learn.
+
+most people define learning too narrowly as mere “problem solving,” so they focus on identifying and correcting errors in the external environment. Solving problems is important. But if learning is to persist, managers and employees must also look inward. They need to reflect critically on their own behavior, identify the ways they often inadvertently contribute to the organization’s problems, and then change how they act. In particular, they must learn how the very way they go about defining and solving problems can be a source of problems in its own right.
+
+you have to reflect on the way you think.
+
+all of us must acknowledge our own mistakes. If we do not have an open dialogue, we will not learn.
+
+They have to be open to change and want to learn.
+
+What explains the professionals’ defensiveness? Not their attitudes about change or commitment to continuous improvement; they really wanted to work more effectively. Rather, the key factor is the way they reasoned about their behavior and that of others.
+
+Put simply, people consistently act inconsistently, unaware of the contradiction between the way they think they are acting and the way they really act.
+
+When senior managers are trained in new reasoning skills, they can have a big impact on the performance of the entire organization—even when other employees are still reasoning defensively
+
+Most of us believe that we are ethical and unbiased.
+
+We imagine we’re good decision makers, able to objectively size up a job candidate or a venture deal and reach a fair and rational conclusion that’s in our, and our organization’s, best interests.
+
+most of us fall woefully short of our inflated self-perception.
+
+illusion of objectivity, the notion that we’re free of the very biases we’re so quick to recognize in others.
+
+even the most well-meaning person unwittingly allows unconscious thoughts and feelings to influence seemingly objective decisions.
+
+These flawed judgments are ethically problematic and undermine managers’ fundamental work—to recruit and retain superior talent, boost the performance of individuals and teams, and collaborate effectively with partners.
+
+four related sources of unintentional unethical decision making: implicit forms of prejudice, bias that favors one’s own group, conflict of interest, and a tendency to over claim credit.
+
+Implicit prejudice Judging according to unconscious stereotypes rather than merit exacts a high business cost.
+
+In-group favoritism Granting favors to people with your same background—your nationality or alma mater—effectively discriminates against those who are different from you.
+
+Overclaiming credit Most of us consider ourselves above average. But when every member of a team thinks he’s making the biggest contribution, each starts to think the others aren’t pulling their weight.
+
+we tend to do more favors for those we know, and those we know tend to be like ourselves: people who share our nationality, social class, and perhaps religion, race, employer, or alma mater.
+
+the majority of people consider themselves above average on a host of measures, from intelligence to driving ability. Business executives are no exception. We tend to overrate our individual contribution to groups, which, bluntly put, tends to lead to an overblown sense of entitlement.
+
+the more we think only of our own contributions, the less fairly we judge others with whom we work.
+
+If an employee learns of a colleague’s greater compensation—while honestly believing that he himself is more deserving—resentment may be natural. At best, his resentment might translate into reduced commitment and performance. At worst, he may leave the organization that, it seems, doesn’t appreciate his contribution.
+
+Everyone knows that conflict of interest can lead to intentionally corrupt behavior.
+
+ethics training must be broadened to include what is now known about how our minds work and must expose managers directly to the unconscious mechanisms that underlie biased decision making. And it must provide managers with exercises and interventions that can root out the biases that lead to bad decisions.
+
+Managers can make wiser, more ethical decisions if they become mindful of their unconscious biases.
+
+The first step to reducing unconscious bias is to collect data to reveal its presence.
+
+Managers who aspire to be ethical must challenge the assumption that they’re always unbiased and acknowledge that vigilance, even more than good intention, is a defining characteristic of an ethical manager. They must actively collect data, shape their environments, and broaden their decision making.
+
+Managers should seek every opportunity to implement affirmative action policies—not because of past wrongs done to one group or another but because of the everyday wrongs that we can now document are inherent in the ordinary, everyday behavior of good, well-intentioned people. Ironically, only those who understand their own potential for unethical behavior can become the ethical decision makers that they aspire to be.
