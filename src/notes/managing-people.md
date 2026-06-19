@@ -265,3 +265,79 @@ When potential teams first gather, everyone monitors the signals given by others
 Positive reinforcement works as well in a team context as elsewhere. Giving out “gold stars” helps shape new behaviors critical to team performance.
 
 top management must recognize a team’s unique potential to deliver results, deploy teams strategically when they are the best tool for the job, and foster the basic discipline of teams that will make them effective.
+
+the powerful motivator in our lives isn’t money; it’s the opportunity to learn, grow in responsibilities, contribute to others, and be recognized for achievements.
+
+Management is the most noble of professions if it’s practiced well. No other occupation offers as many ways to help others learn and grow, take responsibility and be recognized for achievement, and contribute to the success of a team.
+
+For me, having a clear purpose in my life has been essential. But it was something I had to think long and hard about before I understood it.
+
+Your decisions about allocating your personal time, energy, and talent ultimately shape your life’s strategy.
+
+My current vision of success is based on the impact I can have, the experiences I can gain, and the happiness I can find personally, much more so than the pursuit of money or prestige.
+
+One characteristic of these humble people stood out: They had a high level of self-esteem. They knew who they were, and they felt good about who they were.
+
+if your attitude is that only smarter people have something to teach you, your learning opportunities will be very limited. But if you have a humble eagerness to learn something from everybody, your learning opportunities will be unlimited.
+
+you can be humble only if you feel really good about yourself—and you want to help those around you feel really good about themselves, too.
+
+Don’t worry about the level of individual prominence you have achieved; worry about the individuals you have helped become better people.
+
+Think about the metric by which your life will be judged, and make a resolution to live every day so that in the end, your life will be judged a success.
+
+The only way to discover your strengths is through feedback analysis.
+
+concentrate on your strengths. Put yourself where your strengths can produce results.
+
+work on improving your strengths. Analysis will rapidly show where you need to improve skills or acquire new ones.
+
+discover where your intellectual arrogance is causing disabling ignorance and overcome it.
+
+Go to work on acquiring the skills and knowledge you need to fully realize your strengths.
+
+We live in an age of unprecedented opportunity: If you’ve got ambition, drive, and smarts, you can rise to the top of your chosen profession—regardless of where you started out. But with opportunity comes responsibility.
+
+we must each be our own chief executive officer.
+
+you’ll need to cultivate a deep understanding of yourself. What are your most valuable strengths and most dangerous weaknesses? Equally important, how do you learn and work with others? What are your most deeply held values? And in what type of work environment can you make the greatest contribution?
+
+Only when you operate from a combination of your strengths and self-knowledge can you achieve true and lasting—excellence.
+
+use feedback analysis. Every time you make a key decision, write down the outcome you expect.
+
+acting on this knowledge is the key to performance; or rather, not acting on this knowledge condemns one to nonperformance.
+
+Organizations, like people, have values. To be effective in an organization, a person’s values must be compatible with the organization’s values. They do not need to be the same, but they must be close enough to coexist. Otherwise, the person will not only be frustrated but also will not produce results.
+
+Successful careers are not planned. They develop when people are prepared for opportunities because they know their strengths, their method of work, and their values. Knowing where one belongs can transform an ordinary person—hardworking and competent but otherwise mediocre—into an outstanding performer.
+
+the results should be hard to achieve—they should require “stretching,”
+
+the results should be meaningful.
+
+results should be visible and, if at all possible, measurable
+
+what to do, where and how to start, and what goals and deadlines to set.
+
+To be effective, therefore, you have to know the strengths, the performance modes, and the values of your coworkers.
+
+The first secret of effectiveness is to understand the people you work with and depend on so that you can make use of their strengths, their ways of working, and their values.
+
+The second part of relationship responsibility is taking responsibility for communication.
+
+Wherever there is success, there has to be failure.
+
+Resilient people possess three defining characteristics: They coolly accept the harsh realities facing them. They find meaning in terrible times. And they have an uncanny ability to improvise, making do with whatever’s at hand.
+
+More than education, more than experience, more than training, a person’s level of resilience will determine who succeeds and who fails.
+
+Resilient people, they posit, possess three characteristics: a staunch acceptance of reality; a deep belief, often buttressed by strongly held values, that life is meaningful; and an uncanny ability to improvise. You can bounce back from hardship with just one or two of these qualities, but you will only be truly resilient with all three.
+
+A common belief about resilience is that it stems from an optimistic nature. That’s true but only as long as such optimism doesn’t distort your sense of reality.
+
+when we truly stare down reality, we prepare ourselves to act in ways that allow us to endure and survive extraordinary hardship. We train ourselves how to survive before the fact.
+
+We must never forget that we may also find meaning in life even when confronted with a hopeless situation, when facing a fate that cannot be changed.
+
+Resilience is a reflex, a way of facing and understanding the world, that is deeply etched into a person’s mind and soul. Resilient people and companies face reality with staunchness, make meaning of hardship instead of crying out in despair, and improvise solutions from thin air.
