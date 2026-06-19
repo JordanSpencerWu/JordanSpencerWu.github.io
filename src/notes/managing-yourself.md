@@ -163,3 +163,47 @@ Fourth, we become more open to outside signals or stimuli, including those that 
 These four qualities—being results centered, internally directed, other focused, and externally open—are at the heart of positive human influence, which is generative and attractive.
 
 By entering the fundamental state of leadership, we increase the likelihood of attracting others to an elevated level of community, a high-performance state that may continue even when we are not present.
+
+No matter how talented and successful you are, you will make mistakes.
+
+have learned that a key characteristic of highly successful leaders is not that they figure out how to always stay on course, but that they develop techniques to help them recognize a deteriorating situation and get back on track as quickly as possible.
+
+If you’re like most managers, the higher you go up the corporate ladder, the harder it is to get candid feedback on your performance. And without crucial input from bosses and colleagues, you can make mistakes that irreparably damage your organization—and your reputation.
+
+Employees want to know where the business is going and what they need to focus on. As the world changes, they want to know how the business vision and priorities might change along with it.
+
+How am I spending my time? Once you know your priorities, you need to determine whether you’re spending your time—your most precious asset—in a way that will allow you to achieve them.
+
+Leaders need to know how they’re spending their time. They also need to ensure that their time allocation (and that of their subordinates) matches their key priorities.
+
+How am I spending my time? Does it match my key priorities?
+
+How are my subordinates spending their time? Does that match the key priorities for the business?
+
+Leaders often fail to coach employees in a direct and timely fashion and, instead, wait until the year-end review. This approach may lead to unpleasant surprises and can undermine effective professional development. Just as important, leaders need to cultivate subordinates who can give them advice and feedback during the year.
+
+Do I give people timely and direct feedback that they can act on?
+
+When leaders fail to actively plan for succession, they do not delegate sufficiently and may become decision-making bottlenecks. Key employees may leave if they are not actively groomed and challenged.
+
+Have I, at least in my own mind, picked one or more potential successors?
+
+The world is constantly changing, and leaders need to be able to adapt their businesses accordingly.
+
+A leader’s actions in times of stress are watched closely by subordinates and have a profound impact on the culture of the firm and employees’ behavior. Successful leaders need to be aware of their own stress triggers and consciously modulate their behavior during these periods to make sure they are acting in ways that are consistent with their beliefs and core values.
+
+How do I behave under pressure?
+
+Successful executives develop leadership styles that fit the needs of their business but also fit their own beliefs and personality.
+
+have recommended to many leaders that they track how they spend each hour of each day for one week, then categorize the hours into types of activities: business development, people management, and strategic planning.
+
+cognized this issue and made this simple change much earlier. How you spend your time is an important question not only for you but for your team.
+
+whatever you decide, time allocation needs to be a conscious decision that fits your vision and priorities for the business.
+
+Do I give people timely, direct, and constructive feedback?
+
+Do I have five or six junior people who will tell me things I don’t want to hear but need to hear?
+
+your subordinates want to be coached and developed in a truthful and direct manner. They want to get feedback while there’s still an opportunity to act on it; if you’ve waited until the year-end review, it’s often too late.
