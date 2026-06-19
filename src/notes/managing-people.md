@@ -341,3 +341,19 @@ when we truly stare down reality, we prepare ourselves to act in ways that allow
 We must never forget that we may also find meaning in life even when confronted with a hopeless situation, when facing a fate that cannot be changed.
 
 Resilience is a reflex, a way of facing and understanding the world, that is deeply etched into a person’s mind and soul. Resilient people and companies face reality with staunchness, make meaning of hardship instead of crying out in despair, and improvise solutions from thin air.
+
+Energy is a different story. Defined in physics as the capacity to work, energy comes from four main wellsprings in human beings: the body, emotions, mind, and spirit.
+
+To effectively reenergize their workforces, organizations need to shift their emphasis from getting more out of people to investing more in them, so they are motivated—and able—to bring more of themselves to work every day.
+
+When people are able to take more control of their emotions, they can improve the quality of their energy, regardless of the external pressures they’re facing.
+
+become more aware of how they feel at various points during the workday and of the impact these emotions have on their effectiveness.
+
+Most people realize that they tend to perform best when they’re feeling positive energy.
+
+A powerful ritual that fuels positive emotions is expressing appreciation to others, a practice that seems to be as beneficial to the giver as to the receiver.
+
+people can cultivate positive emotions by learning to change the stories they tell themselves about the events in their lives.
+
+The most effective way people can change a story is to view it through any of three new lenses, which are all alternatives to seeing the world from the victim perspective. With the reverse lens, for example, people ask themselves, “What would the other person in this conflict say and in what ways might that be true?” With the long lens they ask, “How will I most likely view this situation in six months?” With the wide lens they ask themselves, “Regardless of the outcome of this issue, how can I grow and learn from it?” Each of these lenses can help people intentionally cultivate more positive emotions.
