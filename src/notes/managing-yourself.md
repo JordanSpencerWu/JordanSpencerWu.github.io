@@ -115,3 +115,51 @@ The only way to fail with an experiment is to fail to learn from it, and this ma
 Failed experiments give you, and those around you, information that helps create better ones in the future.
 
 My hunch is that there are more four-way wins available to you than you’d think. They are there for the taking. You have to know how to look for them and then find the support and zeal to pursue them. By providing a blueprint for how you can be real, be whole, and be innovative as a leader in all parts of your life, this program helps you perform better according to the standards of the most important people in your life; feel better in all the domains of your life; and foster greater harmony among the domains by increasing the resources available to you to fit all the parts of your life together. No matter what your career stage or current position, you can be a better leader and have a richer life—if you are ready and willing to rise to the challenge.
+
+Most managers complain about having too little freedom in their jobs, while their bosses complain about managers’ failure to grasp opportunities.
+
+The truly effective managers we’ve observed are purposeful, trust in their own judgment, and adopt long-term, big-picture views to fulfill personal goals that tally with those of the organization as a whole.
+
+Effective managers proactively control their tasks and the expectations of their major stakeholders, which allows them to meet strategic goals rather than fight fires.
+
+By following what they believe are strict orders from the top, many typical managers tend to concentrate on working within budget and resource constraints—thereby developing a boxed-in, “can’t do” mind-set. By contrast, effective managers develop inventive strategies for circumventing real or imagined limitations. They map out ways around constraints by developing and acting on long-term strategies, making trade-offs, and occasionally breaking rules to achieve their goals.
+
+truly effective managers don’t operate in the context of individual tasks or jobs but in the much broader context of their organizations and careers.
+
+Prioritize Demands. To achieve personal and organizational goals quickly, slow down and focus your time and attention.
+
+Liberate Resources. To relax resource constraints and win the backing you want, attack your goals strategically. Be patient. The process can take years.
+
+Exploit Alternatives. Use your expertise to anticipate—and circumvent—possible obstacles to your goals. You’ll expand the scope of opportunity for your company and yourself.
+
+Managers who develop a long-term strategy and attack their goals slowly, steadily, and strategically, on the other hand, can eventually win the backing they want.
+
+Effective managers, by contrast, seize the opportunity to extend the scope of their jobs, expand their choices, and pursue ambitious goals.
+
+Once managers command their agendas and sense their own freedom of choice, they come to relish their roles. They begin to search for situations that go beyond their scope and enjoy seizing opportunities as they arise. Above all, effective managers with a bias for action aren’t managed by their jobs; rather, the reverse is true.
+
+when leaders do their best work, they don’t copy anyone.
+
+they draw on their own fundamental values and capabilities—operating in a frame of mind that is true to them
+
+fundamental state of leadership. It’s the way we lead when we encounter a crisis and finally choose to move forward.
+
+we all can become more effective leaders by deliberately choosing to enter the fundamental state of leadership rather than waiting for crisis to force us there.
+
+Most of the time, they are in their normal state—a healthy and even necessary condition under many circumstances, but not one that’s conducive to coping with crisis. In the normal state, people tend to stay within their comfort zones and allow external forces to direct their behaviors and decisions.
+
+To elevate the performance of others, we must elevate ourselves into the fundamental state of leadership.
+
+enter the fundamental state of leadership: the way you lead when a crisis forces you to tap into your deepest values and instincts. In this state, you instinctively know what to do: You rise to the occasion and perform at your best.
+
+First, we move from being comfort centered to being results centered.
+
+Second, we move from being externally directed to being more internally directed.
+
+Third, we become less self-focused and more focused on others.
+
+Fourth, we become more open to outside signals or stimuli, including those that require us to do things we are not comfortable doing.
+
+These four qualities—being results centered, internally directed, other focused, and externally open—are at the heart of positive human influence, which is generative and attractive.
+
+By entering the fundamental state of leadership, we increase the likelihood of attracting others to an elevated level of community, a high-performance state that may continue even when we are not present.
