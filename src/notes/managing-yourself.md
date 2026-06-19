@@ -207,3 +207,51 @@ Do I give people timely, direct, and constructive feedback?
 Do I have five or six junior people who will tell me things I don’t want to hear but need to hear?
 
 your subordinates want to be coached and developed in a truthful and direct manner. They want to get feedback while there’s still an opportunity to act on it; if you’ve waited until the year-end review, it’s often too late.
+
+The leader’s mood and behaviors drive the moods and behaviors of everyone else.
+
+a leader’s emotional intelligence creates a certain culture or work environment.
+
+High levels of emotional intelligence, create climates in which information sharing, trust, healthy risk-taking, and learning flourish.
+
+Low levels of emotional intelligence create climates rife with fear and anxiety.
+
+the leader’s mood is quite literally contagious, spreading quickly and inexorably throughout the business.
+
+If a leader’s mood and accompanying behaviors are indeed such potent drivers of business success, then a leader’s premier task—we would even say his primal task—is emotional leadership.
+
+A leader needs to make sure that not only is he regularly in an optimistic, authentic, high-energy mood, but also that, through his chosen actions, his followers feel and act that way, too.
+
+Managing for financial results, then, begins with the leader managing his inner life so that the right emotional and behavioral chain reaction occurs.
+
+It requires an executive to determine, through reflective analysis, how his emotional leadership drives the moods and actions of the organization, and then, with equal discipline, to adjust his behavior accordingly.
+
+What most influences your company’s bottom-line performance? The answer will surprise you—and make perfect sense: It’s a leader’s own mood.
+
+Executives’ emotional intelligence—their self-awareness, empathy, rapport with others—has clear links to their own performance. But new research shows that a leader’s emotional style also drives everyone else’s moods and behaviors—through a neurological process called mood contagion. It’s akin to “Smile and the whole world smiles with you.”
+
+It means understanding your impact on others—then adjusting your style accordingly.
+
+Self-awareness, perhaps the most essential of the emotional intelligence competencies, is the ability to read your own emotions. It allows people to know their strengths and limitations and feel confident about their self-worth. Resonant leaders use self-awareness to gauge their own moods accurately, and they intuitively know how they are affecting others.
+
+Self-management is the ability to control your emotions and act with honesty and integrity in reliable and adaptable ways. Resonant leaders don’t let their occasional bad moods seize the day; they use self-management to leave it outside the office or to explain its source to people in a reasonable manner, so they know where it’s coming from and how long it might last.
+
+Social awareness includes the key capabilities of empathy and organizational intuition. Socially aware executives do more than sense other people’s emotions, they show that they care. Further, they are experts at reading the currents of office politics. Thus, resonant leaders often keenly understand how their words and actions make others feel, and they are sensitive enough to change them when that impact is negative.
+
+Relationship management, the last of the emotional intelligence competencies, includes the abilities to communicate clearly and convincingly, disarm conflicts, and build strong personal bonds. Resonant leaders use these skills to spread their enthusiasm and solve disagreements, often with humor and kindness.
+
+The more we act a certain way—be it happy, depressed, or cranky—the more the behavior becomes ingrained in our brain circuitry, and the more we will continue to feel and act that way.
+
+An emotionally intelligent leader can monitor his or her moods through self-awareness, change them for the better through self-management, understand their impact through empathy, and act in ways that boost others’ moods through relationship management.
+
+begins with imagining your ideal self and then coming to terms with your real self, as others experience you. The next step is creating a tactical plan to bridge the gap between ideal and real, and after that, to practice those activities.
+
+Who do I want to be?
+
+Who am I now?
+
+How do I get from here to there?
+
+How do I make change stick?
+
+Who can help me?
