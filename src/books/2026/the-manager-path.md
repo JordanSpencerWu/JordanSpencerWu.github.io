@@ -1,5 +1,5 @@
 ---
-author: [The Manager's Path]
+author: [Camille Fournier]
 date: 2026-05-09
 description: Learn about The Manager's Path.
 seo-description: The Manager's Path by Camille Fournier notes.

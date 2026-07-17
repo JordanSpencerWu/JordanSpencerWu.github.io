@@ -1,5 +1,5 @@
 ---
-author: [Thinking in Systems]
+author: [Donella H. Meadows]
 date: 2026-04-01
 description: Learn about why Thinking in Systems.
 seo-description: Thinking in Systems by Donella H. Meadows notes.

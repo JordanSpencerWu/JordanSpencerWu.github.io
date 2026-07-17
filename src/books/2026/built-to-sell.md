@@ -1,5 +1,5 @@
 ---
-author: [Built to Sell]
+author: [John Warrillow]
 date: 2026-03-18
 description: Learn about creating a business that you can sell.
 seo-description: Built to Sell - Creating a Business That Can Thrive Without You by John Warrillow notes.

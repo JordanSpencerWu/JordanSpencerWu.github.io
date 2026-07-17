@@ -1,5 +1,5 @@
 ---
-author: [The Mom Test]
+author: [Rob Fitzpatrick]
 date: 2026-06-19
 description: Learn about how to talk to customers & learn if your business is a good idea when everyone is lying to you.
 seo-description: The Mom Test by Rob Fitzpatrick notes.

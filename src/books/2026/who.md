@@ -1,5 +1,5 @@
 ---
-author: [Who]
+author: [Geoff Smart]
 date: 2026-04-01
 description: Learn about Who.
 seo-description: Who by Geoff Smart and Randy Street  notes.

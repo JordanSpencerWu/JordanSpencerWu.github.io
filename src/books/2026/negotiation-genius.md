@@ -1,5 +1,5 @@
 ---
-author: [Negotiation Genius]
+author: [Deepak Malhotra]
 date: 2026-05-01
 description: Learn about Negotiation Genius.
 seo-description: Negotiation Genius by Deepak Malhotra notes.

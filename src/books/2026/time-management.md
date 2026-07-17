@@ -1,5 +1,5 @@
 ---
-author: [Time Management]
+author: [Brian Tracy]
 date: 2026-06-21
 description: Learn about time management.
 seo-description: Time Management by Brian Tracy notes.

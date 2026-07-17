@@ -1,5 +1,5 @@
 ---
-author: [Trade Your Way to Financial Freedom]
+author: [Van K. Tharp]
 date: 2026-04-01
 description: Learn about why Trade Your Way to Financial Freedom.
 seo-description: Trade Your Way to Financial Freedom by Van K. Tharp notes.

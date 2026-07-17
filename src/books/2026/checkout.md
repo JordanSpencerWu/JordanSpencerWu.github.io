@@ -1,5 +1,5 @@
 ---
-author: [Checkout]
+author: [Neil Verma]
 date: 2026-03-18
 description: Learn about The Step-by-Step, 7C Method to Build a Dominant Ecommerce Brand.
 seo-description: Checkout - The Step-by-Step, 7C Method to Build a Dominant Ecommerce Brand by Neil Verma notes.

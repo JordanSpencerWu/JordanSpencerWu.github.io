@@ -1,5 +1,5 @@
 ---
-author: [The Startup of You]
+author: [Reid Hoffman]
 date: 2026-04-01
 description: Learn about why The Startup of You.
 seo-description: The Startup of You by Reid Hoffman notes.

@@ -1,5 +1,5 @@
 ---
-author: [The Age of Surveillance Capitalism]
+author: [Shoshana Zuboff]
 date: 2026-03-27
 description: Learn about why The Age of Surveillance Capitalism.
 seo-description: The Age of Surveillance Capitalism by Shoshana Zuboff notes.

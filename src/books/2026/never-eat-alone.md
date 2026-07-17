@@ -1,5 +1,5 @@
 ---
-author: [Never Eat Alone]
+author: [Keith Ferrazzi]
 date: 2026-03-18
 description: Learn about why Never Eat Alone.
 seo-description: Never Eat Alone by Keith Ferrazzi notes.

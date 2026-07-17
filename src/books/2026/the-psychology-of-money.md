@@ -1,5 +1,5 @@
 ---
-author: [The Psychology of Money]
+author: [Morgan Housel]
 date: 2026-03-14
 description: Learn about how people think about money.
 seo-description: The Psychology of Money by Morgan Housel and Chris Hill notes.

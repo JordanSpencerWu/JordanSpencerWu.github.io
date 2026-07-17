@@ -1,5 +1,5 @@
 ---
-author: [High Output Management]
+author: [Andrew S. Grove]
 date: 2026-03-17
 description: Learn about high output management.
 seo-description: High Output Management by Andrew S. Grove notes.

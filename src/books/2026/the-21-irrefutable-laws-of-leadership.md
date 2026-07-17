@@ -1,5 +1,5 @@
 ---
-author: [The 21 Irrefutable Laws of Leadership]
+author: [John C. Maxwell]
 date: 2026-04-01
 description: Learn about why The 21 Irrefutable Laws of Leadership.
 seo-description: The 21 Irrefutable Laws of Leadership by John C. Maxwell notes.

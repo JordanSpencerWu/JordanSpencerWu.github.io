@@ -1,5 +1,5 @@
 ---
-author: [Emotional Intelligence]
+author: [MindfulMinds Co]
 date: 2026-05-14
 description: How To Master Self-Awareness, Empathy, and Social Skills for Deeper, More Meaningful Relationships.
 seo-description: Emotional Intelligence by MindfulMinds Co notes.

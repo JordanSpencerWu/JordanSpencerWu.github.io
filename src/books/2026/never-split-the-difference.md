@@ -1,5 +1,5 @@
 ---
-author: [Never Split the Difference]
+author: [Chris Voss]
 date: 2026-04-01
 description: Learn about why Never Split the Difference.
 seo-description: Never Split the Difference by Chris Voss notes.

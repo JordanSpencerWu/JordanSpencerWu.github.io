@@ -1,5 +1,5 @@
 ---
-author: [Turning the Flywheel]
+author: [Jim Collins]
 date: 2026-05-14
 description: Learn about creating a business that you can sell.
 seo-description: Turning the Flywheel A Monograph to Accompany Good to Great by Jim Collins notes.

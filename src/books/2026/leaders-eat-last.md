@@ -1,5 +1,5 @@
 ---
-author: [Leaders Eat Last]
+author: [Simon Sinek]
 date: 2026-03-17
 description: Learn about why leaders eat last.
 seo-description: Leaders Eat Last by Simon Sinek notes.

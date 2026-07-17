@@ -1,5 +1,5 @@
 ---
-author: [The E-Myth Revisited]
+author: [Michael E. Gerber]
 date: 2026-05-13
 description: Learn about why The E-Myth Revisited.
 seo-description: The E-Myth Revisited by Michael E. Gerber notes.
